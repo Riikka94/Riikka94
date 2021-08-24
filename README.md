@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Riikka94
 - 👀 I’m interested in playing games
 - 🌱 I’m currently learning how to use this Github
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on maybe someday in gaming business
 - 📫 How to reach me: riikka.koivuniemi@vuoksi.fi
 
 <!---
